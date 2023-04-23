@@ -1,2 +1,2 @@
 # zkland-presale
-April 22th, 2023 7:00 am UTC
+April 23th, 2023 10:00 am UTC
